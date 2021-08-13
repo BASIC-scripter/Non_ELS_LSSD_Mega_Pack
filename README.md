@@ -1,5 +1,5 @@
 # Thank you for downloading!!!
-These liveries are based off of Los Angeles Sheriff's Department. These aren't my vehicles, I only made the liveries, and added handling files for the majority of them. Credits to the original versions are linked down below.
+These liveries are based off of Los Angeles Sheriff's Department. These aren't my vehicles, I only made the liveries. Credits to the original versions are linked down below.
 
 
 //////MY PLUGS\\\\\\
